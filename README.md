@@ -15,4 +15,4 @@ Be considerate
 Be respectful: We may not agree with each other all the time but disagreement is no excuse for poor behavior and poor manners.
 We expect all the community members to follow these rules at all the events organized by Omaha Azure User Group.
 
-If you are being harassed or notice that someone else is being harassed, or have any other concerns, please contact organizers in-person at an event or send them email.
+If you are being harassed or notice that someone else is being harassed, or have any other concerns, please contact organizers in-person at an event or send them email (ozaradny@outlook.com, guillaume.chervet@gmail.com).
